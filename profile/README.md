@@ -17,3 +17,5 @@ Here at Intellicialis, we’re not sticking to the usual script. We’re craftin
 ---
 
 Join our exclusive commmunity! https://discord.gg/bGVRj69
+
+For behind the scenes: https://www.patreon.com/daahrien
